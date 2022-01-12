@@ -13,4 +13,4 @@ And I'm **proud of results I've reached** :chart_with_upwards_trend:
 I'm not the person who stops at some level. "Always grow up" is my principle. :top: <br>
 Whether it developing, music making or skiing! 
 
-I feel **ready** for the first job as a developer.  Let it be the exciting journey to my very new life :seedling:
+I feel **ready** for the first job as a developer.  Try me! :muscle:
